@@ -7,7 +7,7 @@ I'm a B.Tech student majoring in Computer Science and Engineering, passionate ab
 📫 How to reach me:
 Mo no: +918429166115
 Email: surjeetra571@gmail.com
-LinkedIn: [https://www.linkedin.com/in/surjeet-singh-1435b82a3]
+LinkedIn:[https://www.linkedin.com/in/surjeet-singh-1435b82a3]
 GitHub: [https://github.com/surjeetsingh45]
 😄 Pronouns: He/Him
 
